@@ -6,4 +6,4 @@
     <br>
    　　　 　　read straw/fluffle byi
 <br>
-  　　　 　![](https://i.postimg.cc/GHQX2fTQ/3d339469.gif)
+  　　　![](https://i.postimg.cc/GHQX2fTQ/3d339469.gif)
