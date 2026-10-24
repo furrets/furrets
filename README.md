@@ -2,6 +2,6 @@
 
 　　　　grey, any pronouns! 18 y/o
     <br>
-　　　　alter in a system... read strawpage/fluffle byi!
+　　　alter in a system... ![](https://i.postimg.cc/HrQLNqKH/mo13.gif)
     <br>
-    ![](https://i.postimg.cc/HrQLNqKH/mo13.gif)
+   　　　 　　read straw/fluffle byi
